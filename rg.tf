@@ -1,2 +1,0 @@
-King Guru
-Kingo Guru
